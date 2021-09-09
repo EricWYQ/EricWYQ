@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @EricWYQ
 - 🌱 I’m currently learning Telecommunication
-- 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me: yuqingwei0706@gmail.com 
 
 
